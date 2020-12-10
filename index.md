@@ -4,7 +4,8 @@
 
 ### ***"Without music, life would be a mistake"***
 
-#### We have a drummer , a pianist , a guitarist , a saxaphone-player , a mridangist and a lot of singers!
+#### We have a drummer , a pianist , a guitarist , a saxaphone-player , two mridangists and a lot of singers!
 
 ## Our most musical batch is the ***Mehendi Band***
 [This](https://www.youtube.com/watch?v=q0w0RV4eCCA) is their legendary performance.
+## Also, check out our [Musician page](https://shiviatrix.github.io/Sivaramans-Names-of-musicians/)
