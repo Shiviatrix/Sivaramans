@@ -8,4 +8,4 @@
 
 ## Our most musical batch is the ***Mehendi Band***
 [This](https://www.youtube.com/watch?v=q0w0RV4eCCA) is their legendary performance.
-## Also, check out our [Musician page](https://shiviatrix.github.io/Sivaramans-Mehendi-Band-musicians/)
+## Also, check out our [Musician page](https://shiviatrix.github.io/Sivaramans-Mehendi-band-musicians/)
